@@ -4,6 +4,8 @@
 
 hi i'm soup and i have this alt acocunt to just follow ppl, ok? causw im scared to follow ppl on my main account, ok? go check that out...
 
+i am socially anxious and i either talk too much or im silent, ok? im scared to int first :-(
+
 https://github.com/soapiwan . https://soapiwan.straw.page/
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=suzannehelen&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=d9634d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
